@@ -1,1 +1,1 @@
-# parthparmar.github.io
+# parth.github.io
